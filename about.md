@@ -20,7 +20,7 @@ Il colore della sua pelle diventa più scuro o più pallido a seconda della luce
 Ha una vista potentissima, ma offuscata fuori dall’acqua, tatto estremamente sviluppato nei tentacoli, forte percezione delle vibrazioni e una specie di intuizione emotiva.
 Percepisce il mondo attraverso onde e vibrazioni, più che immagini nitide.
 Sa di sale, metallo e pioggia imminente.
-Emette clic profondi, echi liquidi e vibrazioni basse, non parla una lingua, ma capisce il linguaggio umano.
+Emette clic profondi, echi liquidi e vibrazioni basse, non parla una lingua ma capisce il linguaggio umano.
 È capace di mimetizzarsi nelle ombre acquatiche, di assorbire ricordi da oggetti sommersi e di generare leggere onde sonore che influenzano l’ambiente.
 Non mangia cibo tradizionale, si nutre di memorie perdute, oggetti dimenticati e frammenti emotivi.
 È nata per proteggere ciò che è stato dimenticato e i luoghi di transizione tra acqua e terra.
