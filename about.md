@@ -1,9 +1,13 @@
 # Belucranthia
 
 *Come viene prodotto il nome:* Il suo nome non viene pronunciato con la voce, è una vibrazione liquida, simile a un’eco nell’acqua profonda. 
+
 *Significato e origine del nome:* “Belu” deriva dal suono del beluga, “cran” dalle chele del granchio, “thia” da una parola antica che indica “essere tra i mondi”.
+
 *Il nome significa:* “colei che custodisce il confine tra mare e terraa”.
+
 *Pronomi:* Usa pronomi fluidi: lei / loro, la sua identità cambia come la marea.
+
 Belucranthia proviene da una laguna nascosta, chiamata *“Specchio delle Maree”*, un luogo che appare solo durante rarissime maree silenziose. È un ambiente sospeso tra acqua e terra, con radici di alberi immerse nell’acqua e fondali pieni di conchiglie rotte.
 La sua prima apparizione è stata quando un vecchio faro abbandonato ha iniziato a trasmettere segnali senza origine. Da quella frequenza, l’acqua ha preso forma… e lei è emersa.
 Belucranthia è nata da un evento improvviso. Durante una mareggiata violenta, un fulmine ha colpito la laguna, attraversando acqua, fango e radici.
